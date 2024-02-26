@@ -1,0 +1,2 @@
+# jaser
+ALL FOR GOD
